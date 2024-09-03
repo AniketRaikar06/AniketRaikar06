@@ -1,4 +1,4 @@
-# 💫 About Me:👨‍💻 A Professional Full Stack Web/App Developer <br>
+# 💫 About Me:👨‍💻 A Aspiring  Web3  Developer <br>
 
 
 
