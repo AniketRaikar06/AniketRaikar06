@@ -1,4 +1,4 @@
-# 💫 About Me:👨‍💻 A Aspiring  Web3  Developer <br>
+# 💫 About Me:👨‍💻 A  Web3  Developer <br>
 
 
 
